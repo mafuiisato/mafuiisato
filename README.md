@@ -1,4 +1,8 @@
-## Hi there 👋
+# mafuiisato
+〃✦ ┆Ranpoe ִֶָ ࣪ ִֶָ🪽
+
+![Welcome Banner](https://static.wikia.nocookie.net/shipping/images/c/c1/Ranpoe_Official_Art.png/revision/latest?cb=20230114082844)
+🍬
 
 <!--
 **mafuiisato/mafuiisato** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
