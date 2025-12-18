@@ -1,9 +1,9 @@
-# i luv them
-〃✦ ┆Ranpoe ִֶָ ࣪ ִֶָ🪽
+# i luv him sm
+〃✦ ┆Ranpo ִֶָ ࣪ ִֶָ🪽
 
-![Welcome Banner](https://static.wikia.nocookie.net/shipping/images/c/c1/Ranpoe_Official_Art.png/revision/latest?cb=20230114082844)
 🍬
-
+![Your Banner](https://64.media.tumblr.com/8eb1147d999dbe506b75c323276874f6/82f02ffbeb93d48b-a2/s500x750/50a23b3cffb8ee6e13999e344d1881b6431c9204.gifv)
+![Your Banner](https://i.pinimg.com/736x/c3/d5/5e/c3d55e9387f9e9a8c794b43f176c2042.jpg)
 <!--
 **mafuiisato/mafuiisato** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
