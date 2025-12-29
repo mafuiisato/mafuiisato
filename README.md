@@ -22,9 +22,16 @@ Check out my Art [here](https://cara.app/defxmafuui)
     any other Links is on my Profile
 
 
-![Your Banner](https://img1.picmix.com/output/stamp/normal/0/6/4/9/2799460_849fe.png) 
-    
+![Your Banner](https://img1.picmix.com/output/stamp/normal/0/6/4/9/2799460_849fe.png)    
  ✮ ⋆ ˚｡𖦹 ⋆｡°✩
+
+ ![Your Banner](https://pbs.twimg.com/media/GCoagQDWAAEZX0o.jpg)
+
+*That's what makes me love you.*
+
+- Osamu Dazai 15.
+
+   ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <!--
 **mafuiisato/mafuiisato** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
