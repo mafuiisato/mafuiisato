@@ -26,6 +26,9 @@ Check out my Art [here](https://cara.app/defxmafuui)
 ![Your Banner](https://img1.picmix.com/output/stamp/normal/0/6/4/9/2799460_849fe.png)    
  ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&background=FFFFFF00&width=435&lines=Soukoku+%3A%3A+fav+ship.)](https://git.io/typing-svg)
+
  ![Your Banner](https://pbs.twimg.com/media/GCoagQDWAAEZX0o.jpg)
 
 *That's what makes me love you.*
