@@ -10,9 +10,7 @@
 
   ⋆˚𖥔 ݁ ˖𓂃.☘︎ ݁˖
   
-  <div align="center">
-        <img alt="Visitor Stats"          src="https://widgetbite.com/stats/<mafuiisato>"/>  
-    </div>
+  ![Profile views](https://counter.kuber.studio/mafuiisato/dark/count.svg)
     
     ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 <!--
