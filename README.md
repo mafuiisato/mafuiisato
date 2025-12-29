@@ -24,8 +24,10 @@ Check out my Art [here](https://cara.app/defxmafuui)
 
 
 ![Your Banner](https://img1.picmix.com/output/stamp/normal/0/6/4/9/2799460_849fe.png)    
- ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 
+ ✮ ⋆ ˚｡𖦹 ⋆｡°✩
+ 
+![Your Banner](https://camo.githubusercontent.com/b43306aa72592ea9b21f71a78cb356d779a77f66c93719547ce7b669a444f3d8/68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&background=FFFFFF00&width=435&lines=Soukoku+%3A%3A+fav+ship.)](https://git.io/typing-svg)
 
