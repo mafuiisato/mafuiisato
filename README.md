@@ -1,18 +1,30 @@
 #  ִֶָ 𓂃⊹ ִֶָ 
-〃✦ ┆my baby ࣪ ִֶָ🪽
+〃✦ ┆my babies ࣪ ִֶָ🪽
 
 
-![Your Banner](https://img1.picmix.com/output/stamp/normal/8/0/2/9/2799208_4c8f4.png)
-![Your Banner](https://64.media.tumblr.com/6e14e918c9804a672f536cc45298d2b9/3fcdf37115a57c4c-73/s500x750/c895a1664d9fbf8d3d796c0d5cc393565e8662e6.gif)
-![Your Banner](https://64.media.tumblr.com/496cad00e78880da85a5c96ab2529930/2ed8c124ca7a1923-96/s500x750/77d75eefdaa7bf3429ca0c6ad76927d6041501eb.png)
+![Your Banner](https://64.media.tumblr.com/4f1d3cea2504b1fa042be5cb983d780b/1f1272657de02a4e-4c/s1280x1920/6b5aef91b8d6168c83870274b22082aa0ee7fdd3.jpg)
+![Your Banner](https://img1.picmix.com/output/stamp/normal/2/7/6/2/2652672_dd130.png)
+![Your Banner](https://i1.sndcdn.com/artworks-GpfCYcJlEv5otzeM-UusOHQ-t500x500.jpg)
 
-- OMG IS THAT KAGAMINE RI-
+- Soukoku, my loves.
+  
+![Your Banner](https://img1.picmix.com/output/stamp/normal/5/7/1/9/2799175_72c18.png)
 
   ⋆˚𖥔 ݁ ˖𓂃.☘︎ ݁˖
   
   ![Profile views](https://counter.kuber.studio/mafuiisato/dark/count.svg)
+Check out my Art [here](https://cara.app/defxmafuui)
+
+
+[ata](https://defxmafuui.atabook.org/)   
+                [strawpage](https://defxmafuuii.straw.page/)
+              
+    any other Links is on my Profile
+
+
+![Your Banner](https://img1.picmix.com/output/stamp/normal/0/6/4/9/2799460_849fe.png) 
     
-    ✮ ⋆ ˚｡𖦹 ⋆｡°✩
+ ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 <!--
 **mafuiisato/mafuiisato** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
