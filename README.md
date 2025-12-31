@@ -17,8 +17,14 @@
 Check out my Art [here](https://cara.app/defxmafuui)
 
 
-[ata](https://defxmafuui.atabook.org/)   
-                [strawpage](https://defxmafuuii.straw.page/)
+[ata](https://defxmafuui.atabook.org/) 
+
+
+ [strawpage](https://defxmafuuii.straw.page/)
+
+[eng Prounouns](https://en.pronouns.page/@mafuiisato)
+
+[de Prounouns](https://pronomen.net/@mafuiisato)
               
     any other Links is on my Profile
 
