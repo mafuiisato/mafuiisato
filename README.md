@@ -25,6 +25,8 @@ Check out my Art [here](https://cara.app/defxmafuui)
 [eng Prounouns](https://en.pronouns.page/@mafuiisato)
 
 [de Prounouns](https://pronomen.net/@mafuiisato)
+
+[Pin](https://pin.it/5jP8RpfSU)
               
     any other Links is on my Profile
 
