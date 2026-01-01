@@ -20,7 +20,7 @@ Check out my Art [here](https://cara.app/defxmafuui)
 [ata](https://defxmafuui.atabook.org/) 
 
 
- [strawpage](https://defxmafuuii.straw.page/)
+ [strawpage](https://soukokul0ve.straw.page)
 
 [eng Prounouns](https://en.pronouns.page/@mafuiisato)
 
